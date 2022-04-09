@@ -8,7 +8,7 @@
 \
 可以免費下載熊貓辦公網站上的音檔\
 前往熊貓辦公音效素材區：\
-https://www.tukuppt.com/yinxiao\
+https://www.tukuppt.com/yinxiao \
 配樂素材區：\
 https://www.tukuppt.com/peiyue/
 ### 特色
